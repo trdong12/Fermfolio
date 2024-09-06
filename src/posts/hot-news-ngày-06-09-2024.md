@@ -6,13 +6,13 @@ metaDescription: h
 tags:
   - post
 ---
+
+
 ### [Siêu bão Yagi cách Quảng Ninh 510km, dự báo giảm cấp trong 12 giờ tới](https://baomoi.com/sieu-bao-yagi-cach-quang-ninh-510km-du-bao-giam-cap-trong-12-gio-toi-c50094580.epi "Siêu bão Yagi cách Quảng Ninh 510km, dự báo giảm cấp trong 12 giờ tới")
 
 
 
 Trung tâm Dự báo khí tượng thuỷ văn quốc gia cho biết, lúc 12h ngày 6/9, vị trí tâm siêu bão Yagi ở vào khoảng 19,6 độ Vĩ Bắc; 111,6 độ Kinh Đông, cách đảo Hải Nam (Trung Quốc) khoảng 70km, cách Quảng Ninh khoảng 510km. Sức gió mạnh nhất vùng gần tâm bão mạnh cấp 16 (184-201km/h), giật trên cấp 17.
-
-![Dự báo đường đi và cường độ của siêu bão Yagi. (Nguồn: NCHMF)](https://cdn-i.vtcnews.vn/resize/th/upload/2024/09/06/sieu-bao-yagi-1-12231863.jpg)
 
 Dự báo đường đi và cường độ của siêu bão Yagi. (Nguồn: NCHMF)
 
